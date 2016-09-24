@@ -1,4 +1,4 @@
 # hello-world
 first view into github, ideas, other stuff
 
-some big nothing
+omfg, this is SO different from my master :ooooo
